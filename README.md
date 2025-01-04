@@ -1,2 +1,2 @@
 # DawnofthedOfficialmodel
-All Rights Reserved Copyright (c) Dawnofthed Network.inc
+© 2020 - 2025 Dawnofthed Network.inc - All Rights Reserved.
